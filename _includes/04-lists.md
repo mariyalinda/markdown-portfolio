@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+A few of my favourite things to do :sparkles:
+* Creative writing
+* Developing websites
